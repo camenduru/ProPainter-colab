@@ -20,3 +20,7 @@ https://arxiv.org/abs/2309.03897
 https://shangchenzhou.com/projects/ProPainter/
 
 ## Output
+
+https://github.com/camenduru/ProPainter-colab/assets/54370274/9b47b8d4-8000-4cb3-a468-076f9dad45b0
+
+https://github.com/camenduru/ProPainter-colab/assets/54370274/af3e7412-15ca-469f-b3fe-56e643d51876
