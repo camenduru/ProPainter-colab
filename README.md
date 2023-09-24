@@ -28,3 +28,9 @@ https://github.com/camenduru/ProPainter-colab/assets/54370274/af3e7412-15ca-469f
 https://github.com/camenduru/ProPainter-colab/assets/54370274/2079a7a8-0f68-4545-9343-a4f16e30fdae
 
 https://github.com/camenduru/ProPainter-colab/assets/54370274/f8e46128-a166-4ecb-a032-6507111faf9f
+
+https://github.com/camenduru/ProPainter-colab/assets/54370274/e0860d65-ba68-4a3e-b5f6-a840a3f3cb26
+
+https://github.com/camenduru/ProPainter-colab/assets/54370274/d72cdcc6-4ed1-4bec-a027-1c2fc6946d66
+
+https://github.com/camenduru/ProPainter-colab/assets/54370274/4f946dd1-9b68-4104-b834-6ea747222040
